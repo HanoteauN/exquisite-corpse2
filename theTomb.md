@@ -11,7 +11,7 @@ they had no sense, but he forgot everything +
 he typed before. 
 
 Deep within the tomb was the litch king **Keltu'zad** +
-his minion thirsting for the Living +
+and his minion thirsting for the Living +
 ~deep below the ground~ +
 
 The adventurers received a text message from Nathan Drake telling them that unfortunately Lara Croft was busy at home and that they should be careful of ToutenCarton's malediction.
