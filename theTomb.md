@@ -4,4 +4,8 @@ The parties of adventurers were camping outside the newly discovered underground
 They were all happy because the pay that they will receive is a lot higher than normal plus there was most likely 
 the firsts to go in this underground tomb called Nazarick.
 
-Before going in the tomb, they call Lara Croft to have some helps. Because the place is haunted. 
+Before going in the tomb, they call Lara Croft to have some helps. Because the place is haunted.
+
+He put some sentences here +
+they had no sense, but he forgot everything + 
+he typed before. 
