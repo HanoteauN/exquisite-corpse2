@@ -9,3 +9,5 @@ Before going in the tomb, they call Lara Croft to have some helps. Because the p
 He put some sentences here +
 they had no sense, but he forgot everything + 
 he typed before. 
+
+The adventurers received a text message from Nathan Drake telling them that unfortunately Lara Croft was busy at home and that they should be careful of ToutenCarton's malediction.
